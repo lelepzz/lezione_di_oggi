@@ -1,1 +1,0 @@
-# lezione_di_oggi
